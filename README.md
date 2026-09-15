@@ -12,3 +12,5 @@ testers
 - arbusto26
 - nat
 - jolly/mangogoloso/rorobueno/six67/salchichaalol/plubaby/andothers alts.
+
+unete - https://discord.gg/kMBByTyGJu
